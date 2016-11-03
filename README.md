@@ -6,3 +6,5 @@ I have a dream that one day, down in Alabama, with its vicious racists, with its
 
 
 Fourscore and seven years ago our fathers brought forth, upon this continent, a new nation, conceived in liberty and dedicated to the proposition that "all men are created equal."
+
+im a superfreak
